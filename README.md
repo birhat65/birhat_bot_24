@@ -1,1 +1,0 @@
-# birhat_bot_24
